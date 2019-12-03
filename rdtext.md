@@ -1,6 +1,6 @@
-**radiant drift text**
+*radiant drift text*
 
-**aries**
+- **aries**
 We went out for a special dinner on my 32nd birthday
 I couldn’t eat a bite
 Waves of sickness rising
@@ -26,7 +26,7 @@ The commonwealth would allow us to terminate the pregnancy for 6 more weeks
 No, we said, have no such unknowns in our family histories
 We’re prepared to proceed with this pregnancy; we want to be parents now
 
-**nosey**
+- **nosey**
 the placenta gives me great relief
 It takes up a metaposition between us
 To mediate our differing needs
@@ -63,7 +63,7 @@ To monitor the tidal force of my blood
 I’ve become dangerous to the baby
 Each of our bodies a condition of the other’s
 
-**rhubarb**
+- **rhubarb**
 She is born in March
 Gwendolyn
 
@@ -71,11 +71,11 @@ Her daddy catches her
 
 She has a different blood type than me, we’re incompatible they say
 
-**lamprey**
-
 Everyone calls her alert and ‘observant’
 She can’t tell my horn from my synths
 She coos herself to sleep
+
+- **lamprey**
 
 Her favorite game is ‘near far’ run close to mirror giggle at ourself
 Run far from a mirror, giggle at your reflection
