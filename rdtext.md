@@ -29,7 +29,7 @@
 - **nosey**
 
   I find the notes Gale took on my spouse’s birth    
-  and his first year
+  and his first year 
   they anchor me  
 
   I ask him what he imagines Gale thinking of me    
