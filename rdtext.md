@@ -28,13 +28,9 @@
 
 - **nosey**
 
-  I find the notes Gale took on my spouse’s birth    
-<<<<<<< HEAD
+  I find the notes Gale took on my spouse’s birth  
   and his first year  
-  they anchor me    
-  and his first year
   they anchor me  
->>>>>>> b092e4a1f10cb83fe3b840e6446a798772740396
 
   I ask him what he imagines Gale thinking of me    
   he says she would call me radiant
