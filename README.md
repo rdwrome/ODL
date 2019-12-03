@@ -1,10 +1,9 @@
 # co-listening
 
 - **frameworks**
-	- horn
-	- coding+circuits
-	- [gender/sound/space dissertation](https://libraetd.lib.virginia.edu/public_view/tb09j6186)
-	- life at berklee
+	- my background
+		- [gender/sound/space dissertation](https://libraetd.lib.virginia.edu/public_view/tb09j6186)
+		- teaching life at berklee
 
 ## works I think about
 
