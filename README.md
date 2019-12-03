@@ -4,6 +4,9 @@
 	- my background
 		- [gender/sound/space dissertation](https://libraetd.lib.virginia.edu/public_view/tb09j6186)
 		- teaching life at berklee
+	- co-listening as feminist intervention
+		- 'genius'
+		- agency
 
 ## works I think about
 
