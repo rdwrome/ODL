@@ -8,7 +8,7 @@
 		- 'genius'
 		- agency
 
-## works I think about
+## works I'm thinking about
 
 - **The Glass Concert (1967-1970)/ Annea Lockwood**
 
