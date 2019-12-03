@@ -28,31 +28,31 @@
 
 - **nosey**
 
-  I find the notes Gale took on my spouse’s birth  
+  I find the notes Gale took on my spouse’s birth    
   and his first year
-  they anchor me
-  
-  I ask him what he imagines Gale thinking of me  
-  he says she would call me radiant
-  
-  the placenta takes up a metaposition 
-  between us
-  the new 'us' - me and the baby
-  and gives me great relief
+  they anchor me  
 
-  the baby hears Gale’s spouse's voice  
-  low and loud  
-  and they kick like an 808  
+  I ask him what he imagines Gale thinking of me    
+  he says she would call me radiant
+
+  the placenta takes up a metaposition
+  between us  
+  the new 'us' - me and the baby  
+  and gives me great relief  
+
+  the baby hears Gale’s spouse's voice    
+  low and loud    
+  and they kick like an 808    
 
   on christmas, the baby becomes viable   
-  they will not be born to die  
+  they will not be born to die    
 
-  new year's eve  
+  new year's eve    
   I eat four kinds of cake  
   And dance 'til 4am  
 
   I can’t sleep  
-  
+
   my time is still my own  
 
   the week before the birth    
