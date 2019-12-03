@@ -28,16 +28,17 @@
 
 - **nosey**
 
-  i find the notes Gale took on my spouse’s birth  
+  I find the notes Gale took on my spouse’s birth  
   and his first year
   they anchor me
   
-  i ask him what he imagines Gale thinking of me  
+  I ask him what he imagines Gale thinking of me  
   he says she would call me radiant
   
   the placenta takes up a metaposition 
   between us
-  a new 'us' - me and the baby
+  the new 'us' - me and the baby
+  and gives me great relief
 
   the baby hears Gale’s spouse's voice  
   low and loud  
@@ -51,7 +52,7 @@
   And dance 'til 4am  
 
   I can’t sleep  
-
+  
   my time is still my own  
 
   the week before the birth    
@@ -72,7 +73,7 @@ her daddy catches her
 
 she has a different blood type than me, we’re incompatible they say  
 
-everyone calls her alert and ‘observant’  
+everyone calls ‘observant’  
 she coos herself to sleep  
 
 - **lamprey**
