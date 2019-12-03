@@ -24,26 +24,24 @@
   a boilerplate question for screening genetic anomalies  
   the commonwealth would allow us to terminate the pregnancy for 6 more weeks  
   no, we said, have no such unknowns in our family histories  
-  we’re prepared to proceed with this pregnancy; we want to be parents now
+  we’re prepared to proceed
 
 - **nosey**
 
-  the placenta takes up a metaposition between us  
-  and gives me great relief  
-  we needed a mediator  
-  'we' are the baby and me now  
+  i find the notes Gale took on my spouse’s birth  
+  and his first year
+  they anchor me
+  
+  i ask him what he imagines Gale thinking of me  
+  he says she would call me radiant
+  
+  the placenta takes up a metaposition 
+  between us
+  a new 'us' - me and the baby
 
-  i find the notes gale took on my spouse’s birth  
-  and his first year  
-  i ask him what he imagines gale thinking of me  
-  he says she would call me radiant  
-
-  sound, I tell my students, travels better in water than it does in air  
-
-  the baby hears their grandfather’s voice  
-  Gale’s spouse  
+  the baby hears Gale’s spouse's voice  
   low and loud  
-  and kicks like an 808  
+  and they kick like an 808  
 
   on christmas, the baby becomes viable   
   they will not be born to die  
