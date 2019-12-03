@@ -2,28 +2,28 @@
 
 - **aries**
 
-  we went out for a special dinner on my 32nd birthday
-  I couldn’t eat a bite
-  waves of sickness rising
-  tidings of the condition of my body
-  I was 6 weeks pregnant
+  we went out for a special dinner on my 32nd birthday  
+  I couldn’t eat a bite  
+  waves of sickness rising  
+  tidings of the condition of my body  
+  I was 6 weeks pregnant  
 
-  I never met my spouse’s mother
-  Gale
-  she was a scientist
-  she took detailed notes about her life, herself, the world around her
-  my spouse is a scientist too
-  he studies the light of celestial bodies
-  as they move in relation to each other
+  I never met my spouse’s mother  
+  Gale  
+  she was a scientist  
+  she took detailed notes about her life, herself, the world around her  
+  my spouse is a scientist too  
+  he studies the light of celestial bodies  
+  as they move in relation to each other  
 
-  eating rocky road ice cream in the public garden
-  I first felt the fetus flutter
-  like a moth at a lamppost
+  eating rocky road ice cream in the public garden  
+  I first felt the fetus flutter  
+  like a moth at a lamppost  
 
-  at our 18 week appointment, the dr asked us if we could be related to each other
-  a boilerplate question for screening genetic anomalies
-  the commonwealth would allow us to terminate the pregnancy for 6 more weeks
-  no, we said, have no such unknowns in our family histories
+  at our 18 week appointment, the dr asked us if we could be related to each other  
+  a boilerplate question for screening genetic anomalies  
+  the commonwealth would allow us to terminate the pregnancy for 6 more weeks  
+  no, we said, have no such unknowns in our family histories  
   we’re prepared to proceed with this pregnancy; we want to be parents now
 
 - **nosey**
