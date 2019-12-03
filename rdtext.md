@@ -26,8 +26,6 @@ the commonwealth would allow us to terminate the pregnancy for 6 more weeks
 no, we said, have no such unknowns in our family histories
 we’re prepared to proceed with this pregnancy; we want to be parents now
 
-we see a hand touch the nose with sound
-
 - **nosey**
 
 the placenta takes up a metaposition between us
@@ -68,16 +66,17 @@ I’ve become dangerous to the baby
 each of our bodies a condition of the other’s
 
 - **rhubarb**
-she is born in March
+
+she is born in march
 Gwendolyn
 
-Her daddy catches her
+her daddy catches her
 
-She has a different blood type than me, we’re incompatible they say
+she has a different blood type than me, we’re incompatible they say
 
-Everyone calls her alert and ‘observant’
-She can’t tell my horn from my synths
-She coos herself to sleep
+everyone calls her alert and ‘observant’
+she can’t tell my horn from my synths
+she coos herself to sleep
 
 - **lamprey**
 
