@@ -56,38 +56,37 @@
 
   my time is still my own  
 
-  the week before the birth  
-I speak in meeting for the first time
-I’m afraid of the revelation, I tell the friends
+  the week before the birth    
+  I speak in meeting for the first time  
+  I’m afraid of the revelation, I tell the friends  
 
-I have to go to the hospital every day
-to monitor the tidal force of my blood
-I’ve become dangerous to the baby
-each of our bodies a condition of the other’s
+  I have to go to the hospital every day  
+  to monitor the tidal force of my blood  
+  I’ve become dangerous to the baby  
+  each of our bodies a condition of the other’s  
 
 - **rhubarb**
 
-she is born in march
-Gwendolyn
+she is born in march  
+Gwendolyn  
 
-her daddy catches her
+her daddy catches her  
 
-she has a different blood type than me, we’re incompatible they say
+she has a different blood type than me, we’re incompatible they say  
 
-everyone calls her alert and ‘observant’
-she coos herself to sleep
+everyone calls her alert and ‘observant’  
+she coos herself to sleep  
 
 - **lamprey**
 
-Her favorite game is ‘near far’ run close to mirror giggle at ourself
-Run far from a mirror, giggle at your reflection
+her favorite game is ‘near far’ run close to mirror giggle at ourself  
+run far from a mirror, giggle at your reflection  
 
-DOES she recognize herself in the mirror?
+DOES she recognize herself in the mirror?  
 
-one day she figures out the difference between horn and synths
+one day she figures out the difference between horn and synths  
 
-8months
-My mother came
-Said she should know her name
+8months  
+my mother says should know her name  
 
-DOES she recognize her name?
+DOES she recognize her name?  
