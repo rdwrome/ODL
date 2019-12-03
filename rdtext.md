@@ -1,4 +1,4 @@
-#radiant drift text
+# radiant drift text
 
 - **aries**
 
@@ -28,35 +28,35 @@
 
 - **nosey**
 
-the placenta takes up a metaposition between us
-and gives me great relief
-we needed a mediator
-'we' are the baby and me now
+  the placenta takes up a metaposition between us  
+  and gives me great relief  
+  we needed a mediator  
+  'we' are the baby and me now  
 
-i find the notes gale took on my spouse’s birth
-and his first year
-i ask him what he imagines gale thinking of me
-he says she would call me radiant
+  i find the notes gale took on my spouse’s birth  
+  and his first year  
+  i ask him what he imagines gale thinking of me  
+  he says she would call me radiant  
 
-sound, I tell my students, travels better in water than it does in air
+  sound, I tell my students, travels better in water than it does in air  
 
-the baby hears their grandfather’s voice
-Gale’s spouse
-low and loud
-and kicks like an 808
+  the baby hears their grandfather’s voice  
+  Gale’s spouse  
+  low and loud  
+  and kicks like an 808  
 
-on christmas, the baby becomes viable
-they will not be born to die
+  on christmas, the baby becomes viable   
+  they will not be born to die  
 
-new year's eve
-I eat four kinds of cake
-And dance 'til 4am
+  new year's eve  
+  I eat four kinds of cake  
+  And dance 'til 4am  
 
-I can’t sleep
+  I can’t sleep  
 
-my time is still my own
+  my time is still my own  
 
-the week before the birth
+  the week before the birth  
 I speak in meeting for the first time
 I’m afraid of the revelation, I tell the friends
 
