@@ -20,7 +20,7 @@
 ## works I'm making
 
 - **Radiant Drift (2020)**
-	- Terrestrial observers of celestial entities account for the movement of those entities as well as our own on Earth; we are all bodies in relative motion. "Radiant drift" is a perspectival effect in describing cometary direction and velocity. Pregnant with the fetus who would become my daughter, I made hydrophone recordings from my cervix of the growing baby’s movements for 9 months. After her birth, I made field recordings of my daughter’s voice in air.Radiant Drift accounts for the relative motion of my daughter and me in spacialized audio as we individuate in gestation, birth, and infancy. The 6-channel audio installation is a collage of the hydrophone and field recordings, spoken personal narrative, and electronic music.
+	- Terrestrial observers of celestial entities account for the movement of those entities as well as our own on Earth; we are all bodies in relative motion. "Radiant drift" is a perspectival effect in describing cometary direction and velocity.  Pregnant with the fetus who would become my daughter, I made hydrophone recordings from my cervix of the growing baby’s movements for 9 months. After her birth, I made field recordings of my daughter’s voice in air.  *Radiant Drift* accounts for the relative motion of my daughter and me in spacialized audio as we individuate in gestation, birth, and infancy. The 6-channel audio installation is a collage of the hydrophone and field recordings, spoken personal narrative, and electronic music.
 	- 4 movements
 		- 0-24 weeks pregnant: [text](https://github.com/rdwrome/ODL/blob/master/rdtext.md)
 		- 24-40: [audio]
