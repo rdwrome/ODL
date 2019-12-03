@@ -1,9 +1,9 @@
-# creative listening + co-creation
+# co-listening
 
 - **my background in brief**
 	- horn
 	- coding+circuits
-	- gender/sound/space
+	- [gender/sound/space dissertation](https://libraetd.lib.virginia.edu/public_view/tb09j6186)
 	- life at berklee
 
 - **The Glass Concert (1967-1970)/ Annea Lockwood**
