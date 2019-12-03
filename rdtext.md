@@ -30,13 +30,9 @@
 
   I find the notes Gale took on my spouse’s birth    
 <<<<<<< HEAD
-<<<<<<< HEAD
   and his first year  
   they anchor me    
-=======
-=======
->>>>>>> b092e4a1f10cb83fe3b840e6446a798772740396
-  and his first year 
+  and his first year
   they anchor me  
 >>>>>>> b092e4a1f10cb83fe3b840e6446a798772740396
 
