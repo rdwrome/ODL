@@ -1,11 +1,23 @@
 # creative listening + co-creation
 
 - **my background in brief**
-	- horn, code,
-  - open access
+	- horn
+	- coding+circuits
+	- gender/sound/space
+	- life at berklee
 
 - **The Glass Concert (1967-1970)/ Annea Lockwood**
-	- How does Google work?
 
-- **The Glass Concert (1967-1970)/ Annea Lockwood**
-  	- How does Google work?
+- **Teach Yourself to Fly (1974)/ Pauline Oliveros**
+
+- **Funk Lessons (1981?)/ Adrian Piper**
+
+- **Mémoire**
+
+- **Radiant Drift**
+	- 4 movements (4 "trimesters"ish)
+		- text of first movement
+		- audio of second movement
+		- text of second movement
+	- immersiveness
+	- politics: fetus, baby, gwendolyn
