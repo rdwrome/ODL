@@ -24,6 +24,7 @@
   a boilerplate question for screening genetic anomalies  
   the commonwealth would allow us to terminate the pregnancy for 6 more weeks  
   no, we said, have no such unknowns in our family histories  
+  we don't need any tests  
   we’re prepared to proceed
 
 - **nosey**
@@ -37,7 +38,7 @@
 
   the placenta takes up a metaposition
   between us    
-  the new 'us' - me and the baby  
+  my new 'us' - me and the baby  
   and gives me great relief  
 
   the baby hears Gale’s spouse's voice    
@@ -52,6 +53,7 @@
   And dance 'til 4am  
 
   I can’t sleep  
+  I make myself drones
 
   my time is still my own  
 
@@ -66,10 +68,19 @@
 
 - **rhubarb**
 
-she is born in march  
-Gwendolyn  
+  the dr asks me about my education  
+  I tell her about the naked female bodies in my dissertation  
+  we do the same thing, she says, we laugh
+  she's white too
+  she'll believe everything I tell her about my body
+  I know  
+  and that believing is a vital privilege
+  one I am uniquely, unjustly afforded
 
-her daddy catches her  
+  she is born in march  
+  Gwendolyn  
+  her daddy catches her
+  him and her are an 'us' now too
 
 she has a different blood type than me, we’re incompatible they say  
 
@@ -83,7 +94,9 @@ run far from a mirror, giggle at your reflection
 
 DOES she recognize herself in the mirror?  
 
-one day she figures out the difference between horn and synths  
+one day she figures out the difference between horn and synths
+
+she's like a little bull with red  
 
 8months  
 my mother says should know her name  
