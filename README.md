@@ -13,7 +13,7 @@
 
 ## works I'm thinking about
 
-- **The Glass Concert (1967-1970)/ Annea Lockwood**
+- **[The Glass Concert (1967-1970)/ Annea Lockwood](http://www.annealockwood.com/compositions/)**
 
 - **Teach Yourself to Fly (1974)/ Pauline Oliveros**
 	- Any number of persons sit in a circle facing the center. Illuminate the space with dim blue light. Begin by simply observing your own breathing. Always be an observer. Gradually allow your breathing to become audible. Then gradually introduce your voice. Allow your vocal cords to vibrate in any mode which occurs naturally. Allow the intensity to increase very slowly. Continue as long as possible naturally, and until all the others are quiet, always observing your won breath cycle.
