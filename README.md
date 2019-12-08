@@ -4,6 +4,9 @@
 	- my background
 		- [gender/sound/space dissertation](https://libraetd.lib.virginia.edu/public_view/tb09j6186)
 		- teaching life at berklee
+	- ethics of [co-creation](https://wip.mitpress.mit.edu/collectivewisdom)
+		- singular author/authority/process can be harmful (executive summary, p.4)
+		- "Projects emerge from a process, and evolve from within communities and with people, rather than for or about them." (executive summary, p.5)
 	- co-listening as feminist intervention
 		- 'genius'
 		- agency
