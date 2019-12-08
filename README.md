@@ -8,8 +8,8 @@
 		- singular author/authority/process can be harmful (Executive Summary, p.4)
 		- "Projects emerge from a process, and evolve from within communities and with people, rather than for or about them." (Executive Summary, p.5)
 	- co-listening as feminist intervention
-		- 'genius'
-		- distributed agency
+		- against 'genius'
+		- redistributed agency
 
 ## works I'm thinking about
 
@@ -17,6 +17,8 @@
 
 - **Teach Yourself to Fly (1974)/ Pauline Oliveros**
 	- Any number of persons sit in a circle facing the center. Illuminate the space with dim blue light. Begin by simply observing your own breathing. Always be an observer. Gradually allow your breathing to become audible. Then gradually introduce your voice. Allow your vocal cords to vibrate in any mode which occurs naturally. Allow the intensity to increase very slowly. Continue as long as possible naturally, and until all the others are quiet, always observing your won breath cycle.
+
+- **[Southern Voices (1980-1982)/ Sorrel Hays](https://www.youtube.com/watch?v=Bqwwd9DwnSc)**
 
 - **[Funk Lessons (1983)/ Adrian Piper](http://www.adrianpiper.com/vs/video_fl.shtml)**
 
