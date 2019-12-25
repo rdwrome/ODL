@@ -24,7 +24,7 @@
   a boilerplate question for screening genetic anomalies  
   the commonwealth would allow us to terminate the pregnancy for 6 more weeks  
   no, we said, have no such unknowns in our family histories  
-  we don't need any tests  
+  we don't need any more tests  
   we’re prepared to proceed
 
 - **nosey**
@@ -75,24 +75,28 @@
   she'll believe everything I tell her about my body
   I know  
   and that believing is a vital privilege
-  one I am uniquely, unjustly afforded
+  one I am uniquely afforded
 
   she is born in march  
   Gwendolyn  
   her daddy catches her
   him and her are an 'us' now too
 
-she has a different blood type than me, we’re incompatible they say  
+  she has a different blood type than me   
+  we’re incompatible they say  
 
-everyone calls ‘observant’  
-she coos herself to sleep  
+  everyone calls her ‘observant’  
+  she coos herself to sleep  
 
 - **lamprey**
 
-her favorite game is ‘near far’ run close to mirror giggle at ourself  
-run far from a mirror, giggle at your reflection  
-
-DOES she recognize herself in the mirror?  
+  her daddy plays a game with her in the mirror  
+  they huddle close to their reflection in glass and he says 'near'  
+  then he steps as far back from the mirror as he can
+  as quickly as he can  
+  and says 'far'
+  he repeats the process endlessly
+  and she giggles endlessly
 
 one day she figures out the difference between horn and synths
 
@@ -101,4 +105,12 @@ she's like a little bull with red
 8months  
 my mother says should know her name  
 
-DOES she recognize her name?  
+DOES she recognize her name?
+
+one week she starts saying dada
+turns her eyes towards us when we call her name
+
+the next week, 39 weeks after her birth,
+she says mama as she crawls towards me
+from across the room
+
