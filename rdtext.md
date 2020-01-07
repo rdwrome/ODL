@@ -70,12 +70,11 @@
 
   the dr asks me about my education  
   I tell her about the naked female bodies in my dissertation  
-  we do the same thing, she says, we laugh
-  she's white too
-  she'll believe everything I tell her about my body
+  we do the same thing, she says, we laugh  
+  she's white too  
+  she'll believe everything I tell her about my body  
   I know  
-  and that believing is a vital privilege
-  one I am uniquely afforded
+  and that believing is a vital privilege  
 
   she is born in march  
   Gwendolyn  
@@ -95,8 +94,17 @@
   then he steps as far back from the mirror as he can
   as quickly as he can  
   and says 'far'
-  he repeats the process endlessly
-  and she giggles endlessly
+  he repeats the process over and over again  
+  she giggles 
+  
+  she moves towards anything red like a bull  
+  
+  for months when I play my horn for her    
+  she looks around the room to find
+  the source of the reverberations
+  
+  at 7 months old
+  she realizes it is me
 
 one day she figures out the difference between horn and synths
 
