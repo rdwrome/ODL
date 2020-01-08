@@ -100,8 +100,8 @@
   
   for months when I play my horn for her    
   she looks around the room to find
-  the source of the reverberations
-  one day she listens, looks around, smiles at me playing, and reaches for the bell     
+  the source of the reverberations  
+  one day she listens, looks around, smiles at me playing, and reaches for the bell      
   she knows it is me  
   
   first she says 'dada'  
