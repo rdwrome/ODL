@@ -78,12 +78,10 @@
 
   she is born in march  
   Gwendolyn  
-  her daddy catches her
+  her daddy catches her  
   him and her are an 'us' now too
 
   she has a different blood type than me   
-  we’re incompatible they say  
-
   everyone calls her ‘observant’  
   she coos herself to sleep  
 
@@ -95,30 +93,21 @@
   as quickly as he can  
   and says 'far'
   he repeats the process over and over again  
-  she giggles 
+  she giggles endlessly   
   
-  she moves towards anything red like a bull  
+  when she starts to crawl  
+  she moves towards anything red like a little bull  
   
   for months when I play my horn for her    
   she looks around the room to find
   the source of the reverberations
+  one day she listens, looks around, smiles at me playing, and reaches for the bell   
+  she knows it is me
   
-  at 7 months old
-  she realizes it is me
-
-one day she figures out the difference between horn and synths
-
-she's like a little bull with red  
-
-8months  
-my mother says should know her name  
-
-DOES she recognize her name?
-
-one week she starts saying dada
-turns her eyes towards us when we call her name
-
-the next week, 39 weeks after her birth,
-she says mama as she crawls towards me
-from across the room
-
+  first she says 'dada'
+  then she turns towards her name
+  39 weeks after her birth
+  she sees me across the room  
+  and calls 'mama'
+  while she moves towards me
+  and into my arms
