@@ -102,7 +102,7 @@
   she looks around the room to find
   the source of the reverberations  
   one day she listens, looks around, smiles at me playing, and reaches for the bell      
-  she knows it is me  
+  she knows its me  
   
   first she says 'dada'  
   then she turns towards her name  
