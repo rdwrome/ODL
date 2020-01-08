@@ -1,4 +1,4 @@
-# radiant drift text draft
+# radiant drift text
 
 - **aries**
 
@@ -101,13 +101,13 @@
   for months when I play my horn for her    
   she looks around the room to find
   the source of the reverberations
-  one day she listens, looks around, smiles at me playing, and reaches for the bell   
-  she knows it is me
+  one day she listens, looks around, smiles at me playing, and reaches for the bell     
+  she knows it is me  
   
-  first she says 'dada'
-  then she turns towards her name
-  39 weeks after her birth
+  first she says 'dada'  
+  then she turns towards her name  
+  39 weeks after her birth  
   she sees me across the room  
-  and calls 'mama'
-  while she moves towards me
-  and into my arms
+  and calls 'mama'  
+  while she moves towards me  
+  and into my arms  
