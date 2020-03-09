@@ -24,6 +24,6 @@
 
 ## works I'm making
 
-- **[radiant drift (2020)](http://racheldevorah.studio/works/radiant-drift/))**
+- **[radiant drift (2020)](http://racheldevorah.studio/works/radiant-drift/)**
 
 - **[Siren (2020)](http://racheldevorah.studio/works/siren/)**
