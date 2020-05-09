@@ -1,4 +1,37 @@
-# co-listening
+# wi"p" (spring '20)
+
+## [radiant drift](http://racheldevorah.studio/works/radiant-drift/)
+
+## [siren](http://racheldevorah.studio/works/siren/)
+
+## gallery view (9ish min)
+
+	- set the screen of your video conference to "gallery view"
+	- familiarize yourself with the "on/off" functions of your audio and video feeds to the conference
+	- find 3 songs that you like to dance to, get them ready to play on a device (computer, laptop, etc.)
+	- I will assign you into group A, B, or C
+	
+	- SUBSCORE FOR GROUP A:
+		- 1) turn off your video feed, turn on your audio feed
+		- 2) play a song you like to dance to and dance with all the energy you can muster
+		- 3) at the end of the song, turn off your video feed and turn on your audio feed
+		- 4) scream a frustration or a secret into your web camera
+		- 5) repeat steps 1-4
+		- 6) repeat steps 1-4
+		
+	- SUBSCORE FOR GROUP B:
+		- 1) turn off your audio feed, turn on your video feed feed
+		- 2) scream a frustration or a secret into your web camera
+		- 3) turn off your video feed and turn on your audio feed
+		- 4) play a song you like to dance to and dance with all the energy you can muster
+		- 5) at the end of the song, repeat steps 1-4
+		- 6) repeat steps 1-4
+	
+	- SUBSCORE FOR GROUP C:
+		- choose/move between the subscores for groups a and b freely
+		
+
+# co-listening (fall '19)
 
 - **frameworks**
 	- my background
@@ -21,9 +54,3 @@
 - **[Southern Voices (1980-1982)/ Sorrel Hays](https://www.youtube.com/watch?v=Bqwwd9DwnSc)**
 
 - **[Funk Lessons (1983)/ Adrian Piper](http://www.adrianpiper.com/vs/video_fl.shtml)**
-
-## works I'm making
-
-- **[radiant drift (2020)](http://racheldevorah.studio/works/radiant-drift/)**
-
-- **[Siren (2020)](http://racheldevorah.studio/works/siren/)**
